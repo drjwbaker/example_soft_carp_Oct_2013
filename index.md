@@ -1,4 +1,4 @@
-Hello, Mountainnnns!
+Hello, Mountains!
 
 Mountains are awesome!
 
